@@ -1,4 +1,4 @@
-## We Never Forgive ! We Never Forget ! Expect us! We Are Legion!
+## We Are Legion! We Never Forgive ! We Never Forget ! Expect us!
 ## 
 
 ![](anon.gif)
